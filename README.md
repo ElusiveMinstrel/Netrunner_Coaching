@@ -6,11 +6,11 @@ This is a paid coaching service for the game Netrunner. It offers two types of s
 
 ## Why?
 
-Netrunner is a hard game. It's probably the hardest card game I have ever played and in spite of putting thousands of hours into it, it still manages to surprise and bewilder me. Over the years I have found that I improve the most when I talk over the board with another person in front of me. Yes, improving alone is possible and a big part of the journey, but talking through the lines and analysing the decisions together helps me the most. I can teach you how to play the basics of the deck and the matchup, but once those fundamentals are established our sessions will be spent on going through the replays together.
+Netrunner is a hard game. It's probably the hardest card game I have ever played and in spite of putting thousands of hours into it, it still manages to surprise and bewilder me. Over the years I have found that I improve the most when I'm talking the board over with another person in front of me. Yes, improving alone is possible and a big part of the journey, but talking through the lines and analysing the decisions together helps me the most. I can teach you how to play the basics of the deck and the matchup, but once those fundamentals are established our sessions will be spent on going through the replays together.
 
 ## Why am I doing this?
 
-The main reason for me to start offering this as a paid service is my desire to travel to more netrunner events. In particular Worlds 2026 are coming up and I have decided somewhat abruptly that I would like to meet you all there and am trying to offset the cost of the travel and lodging (and lets be real, any amount that I will be able to put together above that will probably be left in very talented hands of people of the art colony.)
+The main reason for me to start offering this as a paid service is my desire to travel to more netrunner events. In particular Worlds 2026 are coming up and I have decided somewhat abruptly that I would like to meet you all there and am trying to offset the cost of the travel and lodging (and lets be real, any amount that I will be able to put together in excess I will probably leave in very talented hands of people of the art colony.)
 
 The non monetary reason for doing this is simple. I love netrunner. I love talking about this game. I love playing it. I love teaching people how to play it and then how to get better at it. I will always find time to help people with the game or simply talk about anything they find fascinating about this game. If you are unable to pay the prices you see on kofi, don't worry. Message me on discord (@disguised_minstrel) and we will figure something out.
 
