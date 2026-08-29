@@ -19,3 +19,5 @@ The non monetary reason for doing this is simple. I love netrunner. I love talki
 1. I reserve the right to reject any submission and booking which contents I will deem objectionable.
 2. As I have said before, in spite of my considerable time in this game, I am by no means a perfect player, not even close to one. I will try to prepare the sessions to the best of my ability, but I will make mistakes. Call me out and disagree with me when you think I'm in the wrong. I will gladly take another look.
 3. My plans for this year are limited to just worlds, its the last and the biggest international event I want to go to this year. Next year I plan to tour European Megacities and travel to EMEA and Worlds in person again.
+
+[ko-fi](https://ko-fi.com/elusive_minstrel)
